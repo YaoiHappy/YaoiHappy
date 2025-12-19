@@ -7,8 +7,8 @@
 　  　　　　　pansexual　　✦　　　any prns　
 
   　　　　　[cc](https://pronouns.cc/@bugGun)　 　　/　　　[str](https://i1xe.straw.page)　　　/
-　　 　　　[tr](https://colormytree.me/2025/01JG39MK74PPEDCRRQXJ24TXDE)                    
-   　　 　　　　　 　　　　　　　　
+　　 　　　[tr](https://colormytree.me/2025/01JG39MK74PPEDCRRQXJ24TXDE)              　　 　　　　　 　　　　     [at](https://xai.atabook.org/) 
+　　　
              
   ________________
   
