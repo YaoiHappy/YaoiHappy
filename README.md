@@ -16,4 +16,4 @@
 
 
                  
-  　　 　　　PlsQuICKnote　 :　　　　　i get easily scared whatever I get yelled at or forced.　　　
+  　　 　　　
